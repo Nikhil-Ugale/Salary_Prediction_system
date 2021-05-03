@@ -19,3 +19,16 @@ Note:-
                            Screeshot of the web app
        
 ![image](https://user-images.githubusercontent.com/63040520/116855777-950fd480-ac17-11eb-915d-0caf4e7a6e37.png)
+
+
+
+
+
+
+
+
+
+
+
+Note:
+A final report for the project has been made with plagarism less than 8%, if you want that report then do reach out to me on linkedin.

@@ -32,3 +32,6 @@ Note:-
 
 Note:
 A final report for the project has been made with plagarism less than 8%, if you want that report then do reach out to me on linkedin.
+Also i would like to thanks my teammates Chitrang Agarwal and Rohith GK for their constant support and expertise in order to carry out this project successfully.
+
+Chitrang's linkedin:-  https://www.linkedin.com/in/chitrang-agarwal-9198239b/
